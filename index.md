@@ -1,5 +1,5 @@
 #About me
 
-![image](https://github.com/polyulabs/starterv2-bbbbbbrenda/assets/156763851/eae30a37-3a7b-47fc-88cb-c1c446fabb5a)
+![image](https://github.com/polyulabs/starterv2-bbbbbbrenda/assets/156763851/32f5a08f-07f6-42a3-bfa1-58703c711d02)
 
 I am Brenda.
